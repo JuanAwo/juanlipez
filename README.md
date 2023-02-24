@@ -1,2 +1,2 @@
-# juanlipez
+# juanlopez
 Repositorio makia 
